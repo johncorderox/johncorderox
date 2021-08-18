@@ -1,1 +1,1 @@
-Animal Crossing| Splatoon 2 | Fortnite 🎮
+Animal Crossing | Splatoon 2 | Fortnite 🎮
